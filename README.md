@@ -3,7 +3,6 @@
 # Project Whirlwind - Appuntini Maigicini
 
 <img alt="Gif di gatto che scrive con la tastiera" src='cattypeing.gif' width='10%' />
-<img alt="Gif di Kyubey di Puella Magi Madoka Magica che gioca con le orecchie" src='magi.gif' width='10%' />
 
 </center>
 
@@ -48,38 +47,40 @@
 - [**Link**](https://www.youtube.com/watch?v=ykLwAIEolbI&t=2343s) Live notturne sul progetto segreto nel 2026  
 - [**Link**](https://www.youtube.com/watch?v=ykLwAIEolbI&t=2466s) Gioco nel quale succedono cazzate ⚠️Potrebbe essere una cazzata
 
-### Deltarune CH 4 Blind Run: "Non c'è due senza tre
+### Third Sanctuary - Deltarune: Chapter 4 Blind Run
 - [**Link**](https://www.youtube.com/watch?v=2bfHJSEFnkM&t=1882s) Carlotta momento  
 - [**Link**](https://www.youtube.com/watch?v=xMHJGd3wwZk)??? 00:36:00 Numero nove prima di carlotta forse c’entra
 
-### NINTENDO DIRECT: Partner Showcase
+### Nintendo Direct Partner Showcase 05/02/2026 - Live Reaction in vacanza
 - [**Link**](https://www.youtube.com/watch?v=4qyahsPpWK0&t=2160s) It Takes Two avrà in qualche modo a che fare con il 27 Feb
 
-### PRESHOW - POKÉMON ACADEMY: "HYPE ne abbiamo? ⚠️Inntale
+### POKÉMON ACADEMY Preshow "HYPE ne abbiamo?" S1 E2 ⚠️Inntale
 - [**Link**](https://www.youtube.com/watch?v=b7ve4J5Br2Y&t=47m56s) info 1  
 - [**Link**](https://www.youtube.com/watch?v=b7ve4J5Br2Y&t=1h01m42s) info 2
 
-**Deltarune CH 4: Finale?**  
+**La fine della profezia - Deltarune: Chapter 4 Blind Run**  
 - [**Link**](https://www.youtube.com/watch?v=hDu9dGK0uDs&t=1780s) UN frutto che non piace a Chiara
 
-### Hollow Knight Silksong Blind Run: "Ultimo cuore
+### Terzo cuore - Hollow Knight: Silksong
 - [**Link**](https://www.youtube.com/watch?v=5i79963Nbi4&t=55m) La timeline è importante & 2010  
 - [**Link**](https://www.youtube.com/watch?v=5i79963Nbi4&t=1h06m44s) Gamberetti
 
-### No I'm not a Human Blind Run: "Guggato” #
+### No, I'm not a human #9 - Horror Night
 
-- [**\*\*\***](#️️️molto-probabilmente-gioco-diverso-️️️) Possibile riconsiderazione sulle vecchie info by edward (chat allegata) [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=51m20s)
+- [**\*\*\***](#️️️molto-probabilmente-gioco-diverso-️️️) Possibile riconsiderazione sulle vecchie info by edward (chat allegata r1607) [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=51m20s)
     - > 'Cydo purtroppo chi ti segue si ricorda tutti i discorsi che uscirono durante la run di Cassette Beasts, la "voglia di fare qualcosa", i disegni delle mani, purtroppo non ci puoi fregare'
 
 - [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=53m31s) Dopo sub sulle storie di IG, si parla di Marky Pllyer, finisce per parlare dello "spoiler più grande del progetto"
 
-### Leakkedì: THE HANNAH MONTANA 
+### Hannah Montana Files - Leakkedì Gaia 
 
 - [**Link**](https://www.youtube.com/watch?v=ZGlxSvNoEx0&t=3h42m45s) Preso in contropiede dalla chat, cede in una commozione, che abbiamo interpretato come conferma della natura del Progetto Segreo (forse siamo stati un po stronzi 😅)
 
 <center>
 
 ## 🕒Wating Ricaricamento🕒
+
+<img alt="Gif di Kyubey di Puella Magi Madoka Magica che gioca con le orecchie" src='magi.gif' width='10%' />
 
 </center>
 
