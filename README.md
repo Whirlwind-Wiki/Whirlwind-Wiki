@@ -2,7 +2,7 @@
 
 # Project Whirlwind - Appuntini Maigicini
 
-<img alt="Gif di gatto che scrive con la tastiera" src='cattypeing.gif' width='10%' />
+<img alt="Gif di gatto che scrive con la tastiera" src='gif/cattypeing.gif' width='10%' />
 
 </center>
 
@@ -93,7 +93,7 @@
 
 
 
-<img alt="Gif di Kyubey di Puella Magi Madoka Magica che gioca con le orecchie" src='magi.gif' width='10%' />
+<img alt="Gif di Kyubey di Puella Magi Madoka Magica che gioca con le orecchie" src='gif/magi.gif' width='10%' />
 
 </center>
 
@@ -143,6 +143,6 @@
 
 Made with ❤️ by **SiriosDev**
 
-<img alt="Cane disegnato che balla" src='dogdancer.gif' width='10%' />
+<img alt="Cane disegnato che balla" src='gif/dogdancer.gif' width='10%' />
 
 </center>
