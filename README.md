@@ -6,6 +6,8 @@
 
 </center>
 
+Per aiutare clicca [qui](https://t.me/+A3xmAm7u-C1kZjNk)
+
 > [!WARNING]
 > Questo progetto nasce come base per una futura wiki dedicata a **Project Whirlwind** (nome provvisorio).
 > Al momento è poco più di una raccolta di appunti grezzi, probabilmente incompleti e con errori di battitura.
