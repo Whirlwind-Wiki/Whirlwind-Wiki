@@ -80,6 +80,11 @@
 
 ## 🕒Wating Ricaricamento🕒
 
+### No, I'm not a human #10 - Horror Night
+
+- [**Link**]() Azzuro e arancione durnate un meme su OF, ma dice che è serio 00:53:00
+- gracerf spoiler che "non potete capire"
+
 <img alt="Gif di Kyubey di Puella Magi Madoka Magica che gioca con le orecchie" src='magi.gif' width='10%' />
 
 </center>
