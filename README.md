@@ -67,8 +67,8 @@
 
 ### No, I'm not a human #9 - Horror Night
 
-- [**\*\*\***](#️️️molto-probabilmente-gioco-diverso-️️️) Possibile riconsiderazione sulle vecchie info by edward (chat allegata r1607) [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=51m20s)
-    - > 'Cydo purtroppo chi ti segue si ricorda tutti i discorsi che uscirono durante la run di Cassette Beasts, la "voglia di fare qualcosa", i disegni delle mani, purtroppo non ci puoi fregare'
+- [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=51m20s) Possibile riconsiderazione sulle vecchie info di Cassette Beast by edward [**\*\*\***](#️️️molto-probabilmente-gioco-diverso-️️️)
+    - > [Cydo purtroppo chi ti segue si ricorda tutti i discorsi che uscirono durante la run di Cassette Beasts, la "voglia di fare qualcosa", i disegni delle mani, purtroppo non ci puoi fregare](https://github.com/SiriosDev/Project-Whirlwind-Appuntini-Maigicini/blob/03bcb348b9d36099fe41db2a2d3b4f9d76fe2bcd/prove/no%20im%20not%20a%20human%209.csv#L1607)
 
 - [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=53m31s) Dopo sub sulle storie di IG, si parla di Marky Pllyer, finisce per parlare dello "spoiler più grande del progetto"
 
@@ -76,14 +76,22 @@
 
 - [**Link**](https://www.youtube.com/watch?v=ZGlxSvNoEx0&t=3h42m45s) Preso in contropiede dalla chat, cede in una commozione, che abbiamo interpretato come conferma della natura del Progetto Segreo (forse siamo stati un po stronzi 😅)
 
+### No, I'm not a human #10 - Horror Night
+
+- [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=30m) Il gioco ha cambiato nome nel tempo, per motivi di protegibilità del marchio
+- [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=56m5s) gracerf, ipoteticamente uno degli sviluppatori/artisti del team, fa uno spoiler su un certo solrac (che riflesso sarebbe Carlos) che "non possiamo capire"
+    - > [No, I'm not solraC](https://github.com/SiriosDev/Project-Whirlwind-Appuntini-Maigicini/blob/03bcb348b9d36099fe41db2a2d3b4f9d76fe2bcd/prove/no%20im%20not%20a%20human%2010.csv#L1193)
+- [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=57ms29s) Azzuro e arancione durnate un meme su OF, ma dice che è serio
+
 <center>
 
 ## 🕒Wating Ricaricamento🕒
 
-### No, I'm not a human #10 - Horror Night
+### Silksong [Blind Run] #35
+- [**Link**]() il meme "si torna dove sempre dove si è/si torna/si è/si", è entrato nel progetto segreto in un qualche modo (stima 00:37:00)
+- [**Link**]() anche il meme og, "si torna dove si è stati bene" è legato in qualche modo al progetto segreto (stima 00:37:00)
 
-- [**Link**]() Azzuro e arancione durnate un meme su OF, ma dice che è serio 00:53:00
-- gracerf spoiler che "non potete capire"
+
 
 <img alt="Gif di Kyubey di Puella Magi Madoka Magica che gioca con le orecchie" src='magi.gif' width='10%' />
 
