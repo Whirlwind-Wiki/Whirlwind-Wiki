@@ -81,7 +81,7 @@
 - [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=30m) Il gioco ha cambiato nome nel tempo, per motivi di protegibilità del marchio
 - [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=56m5s) gracerf, ipoteticamente uno degli sviluppatori/artisti del team, fa uno spoiler su un certo solrac (che riflesso sarebbe Carlos) che "non possiamo capire"
     - > [No, I'm not solraC](https://github.com/SiriosDev/Project-Whirlwind-Appuntini-Maigicini/blob/03bcb348b9d36099fe41db2a2d3b4f9d76fe2bcd/prove/no%20im%20not%20a%20human%2010.csv#L1193)
-- [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=57ms29s) Azzuro e arancione durnate un meme su OF, ma dice che è serio
+- [**Link**](https://www.youtube.com/watch?v=ZXGuAzBW3co&t=57ms29s) Durante un meme su OF, parla dell'associazione del colore azzuro con quello arancione. Inizialmente creduta come meme su PH si è rivelato essere uno spoiler sul progetto segreto.
 
 <center>
 
