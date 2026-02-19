@@ -15,6 +15,8 @@ Per aiutare clicca [qui](https://t.me/+A3xmAm7u-C1kZjNk)
 > [!NOTE]
 > I contenuti sono organizzati in **ordine cronologico inverso**: le note più recenti si trovano in alto, mentre quelle più vecchie scendendo nella pagina.
 
+### No I'm Not a Human Blind Run #11
+- [**Link**]() Tutta l'intro
 
 ### Silksong [Blind Run] #35
 - [**Link**]() il meme "si torna dove sempre dove si è/si torna/si è/si", è entrato nel progetto segreto in un qualche modo (stima 00:37:00)
