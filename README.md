@@ -41,7 +41,7 @@ Per aiutare clicca [qui](https://t.me/+A3xmAm7u-C1kZjNk)
 
 ### No, I'm not a human #9 - Horror Night
 
-- [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=51m20s) Possibile riconsiderazione sulle vecchie info di Cassette Beast by edward [**\*\*\***](#️️️molto-probabilmente-gioco-diverso-️️️)
+- [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=51m20s) Riconsiderazione sulle vecchie info di Cassette Beast by edward [**\*\*\***](#️️️ho-sempre-avuto-ragione)
     - > [Cydo purtroppo chi ti segue si ricorda tutti i discorsi che uscirono durante la run di Cassette Beasts, la "voglia di fare qualcosa", i disegni delle mani, purtroppo non ci puoi fregare](https://github.com/SiriosDev/Project-Whirlwind-Appuntini-Maigicini/blob/03bcb348b9d36099fe41db2a2d3b4f9d76fe2bcd/prove/no%20im%20not%20a%20human%209.csv#L1607)
 - [**Link**](https://www.youtube.com/watch?v=4ytGRNXLVF4&t=53m31s) Dopo sub sulle storie di IG, si parla di Marky Pllyer, finisce per parlare dello "spoiler più grande del progetto"
 
@@ -90,7 +90,10 @@ Per aiutare clicca [qui](https://t.me/+A3xmAm7u-C1kZjNk)
 
 <center>
 
-## ⬇️⬇️⬇️Molto Probabilmente Gioco Diverso ⬇️⬇️⬇️
+## <a id="ho-sempre-avuto-ragione"></a> ~~⬇️⬇️⬇️Molto Probabilmente Gioco Diverso⬇️⬇️⬇️~~ <br> ⬇️⬇️⬇️Alla fine era un evoluzione di questo ⬇️⬇️⬇️ 
+<!---
+Ahhhhh lo sapevo fosse lo stesso, godo
+-->
 
 </center>
 
