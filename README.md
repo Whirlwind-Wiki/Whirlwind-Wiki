@@ -1,6 +1,6 @@
 <center>
 
-# Whirlwind Wiki
+# PeroPedia Wiki
 
 <img alt="Gif di gatto che scrive con la tastiera" src='gif/cattypeing.gif' width='10%' />
 
